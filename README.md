@@ -1,1 +1,1 @@
-# How-to-Start-Freelancing-with-Canva
+# HowtoStartFreelancingwithCanva
